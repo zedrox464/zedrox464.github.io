@@ -1,2 +1,2 @@
 # zedrox464.github.io
-Zedrox464's repo of random stuff
+zedrox464's Repo of Random Jailbreak Stuff
